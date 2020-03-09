@@ -1,5 +1,5 @@
 # Class-03092020
 
-Name:
+Name: Sun YiTing (thebluegiraffe)
 
-Student ID:
+Student ID: 105080061
